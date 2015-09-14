@@ -1,0 +1,1 @@
+# amstudios_resource
